@@ -1,1 +1,1 @@
-rahato is god
+私は変態です
